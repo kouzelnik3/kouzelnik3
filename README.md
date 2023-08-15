@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kouzelnik3
 - 👀 I’m interested in translating, parkour, IT
-- 🌱 I’m currently studying psychology! :P 
+- 🌱 I’ve graduated in psychology! :P 
 - 💞️ I’m looking to collaborate on translating projects!
 - 📫 How to reach me - twitter.com/TraceurKasi, instagram.com/kasi33 and some more.
 
